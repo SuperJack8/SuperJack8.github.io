@@ -1,1 +1,1 @@
-# SuperJack8.github.io
+www.688xin.cn
