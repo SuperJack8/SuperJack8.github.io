@@ -1,1 +1,1 @@
-www.688xin.cn
+688xin.cn
